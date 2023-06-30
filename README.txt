@@ -1,1 +1,1 @@
-chat by usin Skype
+chat by using Skype
